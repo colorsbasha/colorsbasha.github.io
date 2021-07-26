@@ -1,2 +1,0 @@
-# colorsbasha.github.io
-sad
